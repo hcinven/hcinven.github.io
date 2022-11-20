@@ -28,13 +28,13 @@ Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenag
 
 [Robbers - 1975](https://open.spotify.com/track/73jVPicY2G9YHmzgjk69ae?si=43f43afc5119471e)
 
-- **Dancing**
+- **Dancing and Singing**
 
-*She is interested in dancing since she was young, I guess you can this one of her passion. She wants to improve her dance skills just so she can be an Idol; being an Idol is one her dreams that might only stay as a dream.
+*Both of these are her passion, she may be focusing on her dance skills rather than her voice though. She has been singing and dancing ever since she was a kid, she even though of being an Idol and audition in the future; Being an Idol is one of her dreams, but it may probably stay as a dream.*
 
-- **Singing**
+-**Arts and Craft**
 
-*Another one is singing, she has also been singing since she was young, she likes dancing better than singing but both are still her passion. 
+*She isn't an artist but she has always been doing arts and crafts. She likes to draw when she isn't doing much of things, she also watches videos just to make crafts that she can give to someone she loves.*
 
 **THIS IS THE END FOR HCINVEN PRESENTS**
   

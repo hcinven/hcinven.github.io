@@ -1,7 +1,7 @@
 # **HCIVEN PRESENTS**
 **Informations about her**
 
-She has interest in...
+Yvane Genova, who goes by the sobrequet Chin. She is just an ordinary teenage girl who does random postings usually on [Instagram](https://www.instagram.com/izrchin/) and Tiktok. She also made a [Youtube](https://www.youtube.com/channel/UCFrCEpyqkfXUDR-gNTyTG1Q) channel just to post something for fun, her contents contains moments with her friends. These are some of the things she has interest in and doing..
 - kpop
 
 She started listening to K-pop last 2016, when she was introduced to it by her friend. Until now she is still into K-pop, but not that active like before. These are some of her ult groups 

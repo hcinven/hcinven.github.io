@@ -2,28 +2,41 @@
 ## **about her life**
 **Informations about her**
 
-Yvane Genova, who goes by the sobrequet Chin. She is just an ordinary filipino teenage girl who does random postings, usually on [Instagram](https://www.instagram.com/izrchin/) and Tiktok. She also made a [Youtube](https://www.youtube.com/channel/UCFrCEpyqkfXUDR-gNTyTG1Q) channel just to post something for fun, her contents contains moments with her friends. These are some of the things she has interest in and doing..
-- kpop
+Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenage girl who does random postings, usually posts on [Instagram](https://www.instagram.com/izrchin/) and Tiktok. She also made a [Youtube](https://www.youtube.com/channel/UCFrCEpyqkfXUDR-gNTyTG1Q) channel just to post something for fun, her contents contains moments with her friends. *These are some of the things she has interest in and doing*..
+- **K-pop**
 
-She started listening to K-pop last 2016, when she was introduced to it by her friend. Until now she is still into K-pop, but not that active like before. These are some of her ult groups 
+*She started listening to K-pop last 2016, when she was introduced to it by her friend. Until now she is still into K-pop, but not that active like before. These are her Top 3 ult groups.*
 
-NCT
+**NCT**
 
 ![alt text](https://user-images.githubusercontent.com/118234292/202878625-69ef20a4-18a6-47d0-a2e0-7341227130d4.png)
 
-Treasure
+**Treasure**
 
 ![alt text](https://i.pinimg.com/564x/4c/7c/53/4c7c536c0179835d6aaf1ef582b19100.jpg)
 
-The Boyz
+**The Boyz**
 
 ![alt text](https://i.pinimg.com/564x/4f/71/ff/4f71ff3b5c6e49e3c6ec20195331135f.jpg)
-- music
+- **Music**
 
-She loves listening to music, she listens to music in any scenario; she listens to music when she's doing household chores, when she's washing her face, when taking a bath, going out on a trip, waiting in places, and many more. She listens to music just to overcome anxiety, to remove boredom, and to atleast have a little fun while doing something. Doesn't have any exact music genre type, when she likes a song then she adds it to her list. These are some of her favorite music to listen to..
+*She loves listening to music, she listens to music in any scenario. She listens to music when she's doing household chores, when she's washing her face, when taking a bath, going out on a trip, waiting in places, and many more. She listens to music just to overcome anxiety, to remove boredom, and to atleast have a little fun while doing something. Doesn't have any exact music genre type, when she likes a song then she adds it to her list. These are her Top 3 favorite music to listen to..*
 
+[Rose - D.O](https://open.spotify.com/track/2shyarF21wZvWew00TdaP3?si=ae99f13fc3b349a4)
 
-- dancing
-- and you hjsahdjkahs
+[ANL - NCT Dream](https://open.spotify.com/track/3zIvzPKUUdSpDCm1uua6Be?si=bfdda4f75a3e48c7)
 
-*I'm Yvane Genova of 9-Lewis*
+[Robbers - 1975](https://open.spotify.com/track/73jVPicY2G9YHmzgjk69ae?si=43f43afc5119471e)
+
+- **Dancing**
+
+*She is interested in dancing since she was young, I guess you can this one of her passion. She wants to improve her dance skills just so she can be an Idol; being an Idol is one her dreams that might only stay as a dream.
+
+- **Singing**
+
+*Another one is singing, she has also been singing since she was young, she likes dancing better than singing but both are still her passion. 
+
+**THIS IS THE END FOR HCINVEN PRESENTS**
+  
+ 
+

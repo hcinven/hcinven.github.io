@@ -3,6 +3,8 @@
 **Informations about her**
 
 Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenage girl who does random postings, usually posts on [Instagram](https://www.instagram.com/izrchin/) and Tiktok. She also made a [Youtube](https://www.youtube.com/channel/UCFrCEpyqkfXUDR-gNTyTG1Q) channel just to post something for fun, her contents contains moments with her friends. *These are some of the things she has interest in and doing*..
+
+![alt text](https://i.pinimg.com/564x/7f/da/73/7fda7347acdbde29658ec1803b6c8940.jpg)
 - **K-pop**
 
 *She started listening to K-pop last 2016, when she was introduced to it by her friend. Until now she is still into K-pop, but not that active like before. These are her Top 3 ult groups.*
@@ -35,6 +37,8 @@ Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenag
 -**Arts and Craft**
 
 *She isn't an artist but she has always been doing arts and crafts. She likes to draw when she isn't doing much of things, she also watches videos just to make crafts that she can give to someone she loves.*
+
+![alt text](https://i.pinimg.com/564x/7f/da/73/7fda7347acdbde29658ec1803b6c8940.jpg)
 
 **THIS IS THE END FOR HCINVEN PRESENTS**
   

@@ -2,7 +2,7 @@
 ## **about her life**
 **Informations about her**
 
-Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenage girl who does random postings, usually posts on [Instagram](https://www.instagram.com/izrchin/) and Tiktok. She also made a [Youtube](https://www.youtube.com/channel/UCFrCEpyqkfXUDR-gNTyTG1Q) channel just to post something for fun, her contents contains moments with her friends. *These are some of the things she has interest in and doing*..
+Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenage girl who does random postings, usually posts on [`Instagram`](https://www.instagram.com/izrchin/) and Tiktok. She also made a [`Youtube`](https://www.youtube.com/channel/UCFrCEpyqkfXUDR-gNTyTG1Q) channel just to post something for fun, her contents contains moments with her friends. *These are some of the things she has interest in and doing*..
 
 ![alt text](https://i.pinimg.com/564x/7f/da/73/7fda7347acdbde29658ec1803b6c8940.jpg)
 - **K-pop**
@@ -24,11 +24,11 @@ Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenag
 
 *She loves listening to music, she listens to music in any scenario. She listens to music when she's doing household chores, washing her face, while taking a bath, going out on a trip, waiting in places, and many more. She listens to music just to overcome her anxiety, to remove boredom, and to atleast have a little fun while doing something. Doesn't have any exact music genre type, she just adds the song to her list when she likes it. These are her Top 3 favorite music to listen to..*
 
-[Rose - D.O](https://open.spotify.com/track/2shyarF21wZvWew00TdaP3?si=ae99f13fc3b349a4)
+[`Rose - D.O`](https://open.spotify.com/track/2shyarF21wZvWew00TdaP3?si=ae99f13fc3b349a4)
 
-[ANL - NCT Dream](https://open.spotify.com/track/3zIvzPKUUdSpDCm1uua6Be?si=bfdda4f75a3e48c7)
+[`ANL - NCT Dream`](https://open.spotify.com/track/3zIvzPKUUdSpDCm1uua6Be?si=bfdda4f75a3e48c7)
 
-[Robbers - 1975](https://open.spotify.com/track/73jVPicY2G9YHmzgjk69ae?si=43f43afc5119471e)
+[`Robbers - 1975`](https://open.spotify.com/track/73jVPicY2G9YHmzgjk69ae?si=43f43afc5119471e)
 
 - **Dancing and Singing**
 

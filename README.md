@@ -28,8 +28,10 @@ Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenag
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2shyarF21wZvWew00TdaP3?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 [`ANL - NCT Dream`](https://open.spotify.com/track/3zIvzPKUUdSpDCm1uua6Be?si=bfdda4f75a3e48c7)
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3zIvzPKUUdSpDCm1uua6Be?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 [`Robbers - 1975`](https://open.spotify.com/track/73jVPicY2G9YHmzgjk69ae?si=43f43afc5119471e)
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/73jVPicY2G9YHmzgjk69ae?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 - **Dancing and Singing**
 

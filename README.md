@@ -25,6 +25,7 @@ Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenag
 *She loves listening to music, she listens to music in any scenario. She listens to music when she's doing household chores, washing her face, while taking a bath, going out on a trip, waiting in places, and many more. She listens to music just to overcome her anxiety, to remove boredom, and to atleast have a little fun while doing something. Doesn't have any exact music genre type, she just adds the song to her list when she likes it. These are her Top 3 favorite music to listen to..*
 
 [`Rose - D.O`](https://open.spotify.com/track/2shyarF21wZvWew00TdaP3?si=ae99f13fc3b349a4)
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2shyarF21wZvWew00TdaP3?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 [`ANL - NCT Dream`](https://open.spotify.com/track/3zIvzPKUUdSpDCm1uua6Be?si=bfdda4f75a3e48c7)
 

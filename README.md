@@ -22,7 +22,7 @@ Yvane Genova, who goes by the sobrequet Chin. She is an ordinary filipino teenag
 ![alt text](https://i.pinimg.com/564x/4f/71/ff/4f71ff3b5c6e49e3c6ec20195331135f.jpg)
 - **Music**
 
-*She loves listening to music, she listens to music in any scenario. She listens to music when she's doing household chores, when she's washing her face, when taking a bath, going out on a trip, waiting in places, and many more. She listens to music just to overcome anxiety, to remove boredom, and to atleast have a little fun while doing something. Doesn't have any exact music genre type, when she likes a song then she adds it to her list. These are her Top 3 favorite music to listen to..*
+*She loves listening to music, she listens to music in any scenario. She listens to music when she's doing household chores, washing her face, while taking a bath, going out on a trip, waiting in places, and many more. She listens to music just to overcome her anxiety, to remove boredom, and to atleast have a little fun while doing something. Doesn't have any exact music genre type, she just adds the song to her list when she likes it. These are her Top 3 favorite music to listen to..*
 
 [Rose - D.O](https://open.spotify.com/track/2shyarF21wZvWew00TdaP3?si=ae99f13fc3b349a4)
 

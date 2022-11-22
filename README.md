@@ -1,5 +1,5 @@
 # **HCINVEN PRESENTS**
-## **Yvane Genova's Life**
+## **Chin's Life**
 **Informations about her**
 
 Yvane Genova of 9-Lewis, who goes by the sobrequet Chin. She is an ordinary filipino teenage girl who does random postings, usually posts on [`Instagram`](https://www.instagram.com/izrchin/) and Tiktok. She also made a [`Youtube`](https://www.youtube.com/channel/UCFrCEpyqkfXUDR-gNTyTG1Q) channel just to post something for fun, her contents contains moments with her friends. *These are some of the things she has interest in and doing*..
